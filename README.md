@@ -1,4 +1,4 @@
-# 2024-tp0-presentacion-Reichel-eze
+# 2024-tp0-presentacion-ReichelEze
 ## Introduccion
 Hola, mi nombre es Ezequiel Reichel y tengo 21 años. Naci en la Ciudad Autonoma de Buenos Aires y actualmente me encuentro cursando mi 2do año en la especialidad de ingenieria en sistemas de informacion en la UTN (aunque estoy en esta facultad desde 2020, "pasaron cosas")
 
