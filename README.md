@@ -7,7 +7,9 @@ Hola, mi nombre es Ezequiel Reichel y tengo 21 años. Naci en la Ciudad Autonoma
 - Me suelen decir "Reichel" pero bueno con dirigirse hacia mi con un "eze" no pasa nada ehh. Razon de "Reichel"? La tipica historia que habia otro Ezequiel en el curso y bla bla, o quizas es porque es chistoso un "Rachel" sin la "a" y que se pronuncie como nombre de minita en pelicula yankee cuyo novio es "Brad", el capitan del equipo de football
 - Practicamente tomo todas las infusiones sea te, cafe, mate (amargo porfa), chocolatada?
 - Me gustan tanto los mishis como los perros pero por desgracia soy de ese porcentaje de la poblacion que no tiene ninguno de los dos :((
-- Me interesa el fulbo y tambien me gusta jugarlo 
+- Me interesa el fulbo y tambien me gusta jugarlo
+- En cuanto a la musica soy bastante de escuchar un poco de todo, en relacion al mood en que estoy voy migrando de un genero hacia otro
+- Soy de comer variedad de comidas, pero lo unico asi conocido que no me gustan y no puedo comer son los panchos
 
 *PD: "pasaron cosas" = me cambie de especialidad, antes cursaba ingeniera civil :)*  
 *Another PD: Aguante el invierno vieja*
